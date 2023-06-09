@@ -1,1 +1,1 @@
-# agradecimiento a JuanMaRuiz y al ins. richar maurello 
+# agradecimiento a JuanMaRuiz y al ins. Richar maurello 
